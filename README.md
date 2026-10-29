@@ -4,7 +4,7 @@ Isha2004-coder/Isha2004-coder is a ✨ special ✨ repository because its `READM
 You can click the Preview link to take a look at your changes.
 --->
 # 💫 About Me:
-🔭 I’m currently seeking new grad software roles <br><br>🌱 I’m passionate about making an impact and i love to learn new technologies<br><br>👯 I’m looking to collaborate on any new ideas you have<br><br><br>📫 How to reach me aroraishanshika@gmail.com<br><br>⚡ Fun fact I love to travel and eat good food especially cheesecake. 
+🔭 I’m currently seeking new grad software roles <br><br>🌱 I’m passionate about making an impact and i love to learn new technologies<br><br>👯 I’m looking to collaborate on any new ideas you have<br><br>📫 How to reach me aroraishanshika@gmail.com<br><br>⚡ Fun fact I love to travel and eat good food especially cheesecake. 
 
 
 ## 🌐 Socials:
